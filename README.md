@@ -1,1 +1,1 @@
-This is a website I made for a web development elective I took in 9th grade as an assignment to make a website about a person. I am not a brandonjla stalker.
+This is a website I made for a web development elective I took in 9th grade as an assignment to make a website about a person. I am not a brandonjla stalker. Also I will not be making many changes unless info is inaccurate on the website, or there is a problem with it
